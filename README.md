@@ -1,1 +1,1 @@
-This is the portfolio of Parin Khruaba
+This is portfolio of Parin Khruana
